@@ -13,7 +13,7 @@ No, I won't never give up, no, never give up, no, no
 And I won't let you get me down
 I'll keep gettin' up when I hit the ground
 Oh, never give up, no, never give up no, no, oh
-I won't let you get me down
+I won't let you get me down     
 I'll keep gettin' up when I hit the ground
 Oh, never give up, no, never give up no, no, oh
 I'll find my way, find my way home, oh, oh, oh
